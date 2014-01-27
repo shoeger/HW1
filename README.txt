@@ -1,2 +1,0 @@
-Sam Hoeger
-Chicago Cubs
